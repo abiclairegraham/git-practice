@@ -57,4 +57,12 @@ The most recent person to merge into main is Jon Leslie
   breast in under 2 1/2 minutes...both sides!
 * He loves Mexican food.
 
+This is Abi Graham adding some stuff:
+
+* I recently bought some carnivorous plants and a Mimosa Pudica (a fern which quickly closes its leaves when touched) and they are very cute.
+* I have over 50 eyeshadow palettes in very bright colours which I wear most days.
+* I'm a competitive powerlifter - best lift was 195.5kg deadlift at 63kg bodyweight, a British record.
+* I'm also obsessed with complex origami of all kinds - insects, animals, tessellations and more.
+* And I love board-games, particularly Terra Mystica which I've played hundreds of times.
+
 **NOTE - Please try add different types of facts than the previous person has added**
